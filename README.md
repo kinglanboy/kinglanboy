@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there I'm king lanny
+
+i'm ready to work with you if you are with me.
 
 <!--
 **kinglanboy/kinglanboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
